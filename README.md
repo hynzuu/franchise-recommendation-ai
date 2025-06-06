@@ -1,1 +1,1 @@
-<img width="1191" alt="Brown and Beige Illustrative Style Chocolate Day Infographic Poster (2)" src="https://github.com/user-attachments/assets/876ff0b6-1dc7-469a-a6e6-44638aab3fa7" />
+<img width="1191" alt="Brown and Beige Illustrative Style Chocolate Day Infographic Poster (3)" src="https://github.com/user-attachments/assets/c6e1fc42-fd8c-4062-95f8-c338df392f42" />
